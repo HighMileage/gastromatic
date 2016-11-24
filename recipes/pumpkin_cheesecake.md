@@ -29,7 +29,6 @@
 * Remove from the oven and allow the cheesecake to cool.
 * When the cheesecake has come to room temperature, put it in the refrigerator.
 
-
 ### Notes
 * Humidity mike make it necessary to add 1 extra tablespoon of butter.
 
