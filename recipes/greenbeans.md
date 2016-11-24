@@ -23,7 +23,7 @@
 * Add bell pepper and mushrooms, and cook until softened and most of the liquid has evaporated, about 8 minutes.
 * Season with 1 teaspoon salt and 1/4 teaspoon pepper.
 * Set aside to cool.
- 
+
 
 * Prepare an ice bath: Fill a large bowl with ice and water; set aside.
 * Bring a saucepan of water to a boil.
@@ -31,7 +31,7 @@
 * Drain, and plunge into ice bath to stop cooking.
 * When cooled, toss drained beans with mushroom mixture; set aside.
 
- 
+
 * Melt the remaining 4 tablespoons butter in a medium saucepan over medium-low heat.
 * Add 1/4 cup flour, whisk constantly until mixture begins to turn golden, about 2 minutes.
 * Pour in milk, and continue whisking until mixture has thickened, about 3 minutes.
@@ -39,14 +39,14 @@
 * Remove from heat, and let cool to room temperature, stirring occasionally.
 * Pour over beans, and toss to combine.
 
- 
+
 * Butter a 9-by-13-inch glass or ceramic baking pan.
 * Spread half the green-bean mixture over the bottom.
 * Sprinkle on half the grated Parmesan, and spread with the remaining green beans.
 * Combine the remaining Parmesan and the breadcrumbs, and sprinkle over casserole.
 * Cover with foil, and refrigerate until just before serving.
 
- 
+
 * Heat broiler, positioning rack about 8 inches from heat.
 * Cook casserole, covered, until mixture is bubbly and heated through, about 10 minutes.
 * Uncover, and cook until top 1s golden brown, about 30 seconds.
