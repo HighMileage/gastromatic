@@ -1,6 +1,6 @@
-# Greenbeans
+# Greenbean Casserole
 
-### IngredieGreen Bean Casserole
+### Ingredients
 * 6 tablespoons unsalted butter, plus more for dish
 * 1 medium onion, cut into 1/4-inch dice
 * 1 red bell pepper, seeded and cut into 1/2-inch dice
