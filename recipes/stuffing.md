@@ -1,7 +1,7 @@
 # Sausage Stuffing with Pecans
 
 ### Ingredients
-* 16 ounces cornmeal stuffing or bread stuffing
+* 16 ounces [cornbread](https://github.com/HighMileage/gastromatic/blob/master/recipes/cornbread.md) stuffing or bread stuffing
 * 0.5 pounds pork sausage cooked and chopped
 * 1 carrot mined
 * 3 ribs of celery finely diced
