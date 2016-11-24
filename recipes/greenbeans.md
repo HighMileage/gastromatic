@@ -2,8 +2,8 @@
 
 ### IngredieGreen Bean Casserole 
 * 6 tablespoons unsalted butter, plus more for dish 
-* 1 medium onion, cut into 1 /4-inch dice 
-* 1 red bell pepper, seeded and cut into 1 /2-inch dice 
+* 1 medium onion, cut into 1/4-inch dice 
+* 1 red bell pepper, seeded and cut into 1/2-inch dice 
 * 1 pound button mushrooms, stems trimmed, quartered 
 * 2 teaspoons coarse salt 
 * 0.5 teaspoon freshly ground pepper 
@@ -24,11 +24,13 @@
 * Season with 1 teaspoon salt and 1/4 teaspoon pepper.
 * Set aside to cool.
  
+
 * Prepare an ice bath: Fill a large bowl with ice and water; set aside.
 * Bring a saucepan of water to a boil.
 * Add beans, and cook until bright green and just tender, 4 to 5 minutes.
 * Drain, and plunge into ice bath to stop cooking.
 * When cooled, toss drained beans with mushroom mixture; set aside.
+
  
 * Melt the remaining 4 tablespoons butter in a medium saucepan over medium-low heat.
 * Add 1/4 cup flour, whisk constantly until mixture begins to turn golden, about 2 minutes.
@@ -36,12 +38,14 @@
 * Stir in cayenne, nutmeg, and the remaining teaspoon salt and 1/4 teaspoon pepper.
 * Remove from heat, and let cool to room temperature, stirring occasionally.
 * Pour over beans, and toss to combine.
+
  
 * Butter a 9-by-13-inch glass or ceramic baking pan.
 * Spread half the green-bean mixture over the bottom.
 * Sprinkle on half the grated Parmesan, and spread with the remaining green beans.
 * Combine the remaining Parmesan and the breadcrumbs, and sprinkle over casserole.
 * Cover with foil, and refrigerate until just before serving.
+
  
 * Heat broiler, positioning rack about 8 inches from heat.
 * Cook casserole, covered, until mixture is bubbly and heated through, about 10 minutes.
@@ -49,6 +53,7 @@
 * Sprinkle fried onions over top, and serve immediately.
 
 ### Notes
+* Makes 8 servings
 
 ### Source
 [//]: # (#thanksgiving #carbs #vegetables)
