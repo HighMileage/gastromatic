@@ -14,15 +14,14 @@
 * Kosher salt and freshly ground black pepper
 
 ## Instructions
-Heat the oven to 400 degrees F.
-
-* Put the turkey wings (turkey and neck if you've got it) into a small roasting pan and roast them until they are golden brown, about 30 minutes.
+* Heat the oven to 400 degrees F.
+* Put the turkey wings (backbone and neck if you've got it) into a small roasting pan and roast them until they are golden brown, about 30 minutes.
 * Heat 3 tablespoons olive oil in a large stock pot over medium-high heat.
 * Add the onion, carrots, garlic, herbs, and peppercorns and cook for 5 minutes.
 * Add the turkey wings.
 * Pour some water into the roasting pan and scrape up all the browned bits on the bottom; add this to the pot.
 * Cover everything in the pot with cold water by 1-inch and bring to the boil, skimming any foam that rises to the surface.
-* Reduce the heat and simmer for about 1 1/2 to 2 hours.
+* Reduce the heat and simmer for about 1.5 to 2 hours.
 * Strain out the solids and discard.
 * Wipe out the pot and put it over medium heat.
 * Melt the butter with the remaining 2 tablespoons olive oil and add the flour.
