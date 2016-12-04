@@ -1,2 +1,2 @@
 # gastromatic
-Recipes and the like
+Recipes and the like.
