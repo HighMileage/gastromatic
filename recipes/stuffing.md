@@ -13,7 +13,7 @@
 * 1 tablespoon pepper
 * 4 bay leaves
 * salt to taste
-* 8 ounces
+* 8 ounces butter
 * 4 ounces toasted pecans whole or pieces
 
 ### Steps
